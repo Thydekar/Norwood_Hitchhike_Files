@@ -1,3 +1,3 @@
-# Norwood_Hitchhike_Files_Download
+# Norwood_Hitchhike_Files
 
-its a torrent file. you know what to do.
+torrentfile does not work
